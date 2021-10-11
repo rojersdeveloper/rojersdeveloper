@@ -2,7 +2,7 @@
 
 Дополнительная информация обо мне:
 Количество просмотров профиля:
-![](https://komarev.com/ghpvc/?username=suarezdeveloper=green)
+![](https://komarev.com/ghpvc/?username=suarezdevelopere&color=green)
 
 <!---
 suarezdeveloper/suarezdeveloper is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
