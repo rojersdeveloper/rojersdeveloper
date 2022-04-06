@@ -10,7 +10,7 @@
 
 ###  💼Мои социальные сети: 
 
-Вконтакте - [VK](https://vk.com/suarezz) 
+Вконтакте - [VK](https://vk.com/officialraud) 
 Ютуб Канал - [YT](https://www.youtube.com/channel/UCpwj8anXkmOOfnsjmJ-rHbA)
 
 ### ⚠️️ Information about me:
